@@ -8,6 +8,10 @@ Roast Master
 - Quality
 - Sustainability
 
+About
+-----
+Dedicated to supplying the needs for custom crafted coffee beans in Northern Malaysia.  To ensure that we're always sensitive to the needs of cafes, restaurants, and coffee artisans, we've even invested in setting up a factory in Butterworth, Penang.
+
 ### Coffee Beans
 Each green bean has its own unique and extensive spectrum of flavor compounds.  Awaiting to be unlocked by the right roaster.
 
